@@ -1,3 +1,3 @@
-**Maulana Malik Ibrahim
+#Maulana Malik Ibrahim
 
-dia adalah seorang mahasiswa di UNISA
+dia adalah seorang mahasiswa fakultas agama universitas Alkhairaat
